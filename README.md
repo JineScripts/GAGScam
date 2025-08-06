@@ -1,1 +1,1 @@
-# GAGScam
+ EDucational Purposes
